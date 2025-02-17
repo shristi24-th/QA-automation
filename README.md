@@ -1,2 +1,6 @@
 # QA-automation
-learning phase 
+learning phase
+fuhiruighre
+nfuigjr
+fwenrgijrei
+erbnvenf
